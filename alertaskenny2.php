@@ -1,1 +1,0 @@
-$10-Que sarpa ctm (Los simpsons) | $11- Entonces | $12-Tu falta de querer (Homero) | $13-Mas me crece (Goku) | $14-Cat electro | $15-Cumbion (SIKES) | $16-Gata bajo la lluvia (Homero sad) | $17-No more (Cartman) | $18-Cuequita gamer | $19-Ya llego el lechero || 
